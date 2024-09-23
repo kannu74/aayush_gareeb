@@ -9,3 +9,5 @@ maitray loke ka baa;l hai.c main
 tejj chalayi kyu tune gaadi danishh bhai aaaja;
 ataatao ke saudagar lode
  main
+jab akshar ka khada hota hai toh usko kya bolte hai?
+ miniboo-ner
